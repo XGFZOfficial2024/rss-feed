@@ -1,0 +1,1 @@
+##SSS Social Sharing Site This is a Site for When I Meet people and need there info They enter It in And it Sends to My Discord heads up yes it does have a bot code in it already but it not worth it to try to hack it because it's a bot discord account and a bot server replace it if your trying to copy this idea or it'll send it to my server and not yours
